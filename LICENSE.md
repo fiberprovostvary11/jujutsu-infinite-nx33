@@ -1,4 +1,4 @@
-
+Experience jujutsu infinite like never before with secure Scripts for jujutsu infinite, the #1 Script. Includes auto-farm and custom skins for
 
 
 
